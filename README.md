@@ -1,3 +1,2 @@
 # My name is Furqan Raes
- i am sdfsdfjhasdfjhklf
- om Gilgit
+ my name is muhammad Awais Alam and i am from gujrat
